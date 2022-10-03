@@ -1,11 +1,7 @@
-# * I will try to keep this updated. *
+# * Hello! My name is RedcXca and I am an all modes osu! player *
 
 * [**My osu! Profile**](https://osu.ppy.sh/users/14056601)
-* [**Download Skin**]([https://www.twitch.tv/xootynator](https://drive.google.com/drive/folders/1G7X0lrWD6hkzXTTgRMNmVPCZBUANxHWo))
-
-If anything is broken please DM me so I can fix it. 
-
-If a skin is missing or you are looking for other skins also feel free to DM me.
+* [**Download Skin**](https://drive.google.com/drive/folders/1G7X0lrWD6hkzXTTgRMNmVPCZBUANxHWo)
 
 Discord: **RedcXca#4332**
 
