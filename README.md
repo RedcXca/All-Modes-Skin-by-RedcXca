@@ -24,3 +24,5 @@ Discord: **RedcXca#4332**
 
 # **🎹 Mania**
 ![](https://i.imgur.com/MCRY1Lp.jpg)
+
+**Idea from Bjonk1911**
