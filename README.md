@@ -1,12 +1,26 @@
-# * Hello! My name is RedcXca and I am an all modes osu! player *
+# All Modes Skin by RedcXca
 
 * [**My osu! Profile**](https://osu.ppy.sh/users/14056601)
 * [**Download Skin**](https://drive.google.com/drive/folders/1G7X0lrWD6hkzXTTgRMNmVPCZBUANxHWo)
 
-Discord: **RedcXca#4332**
+Hello! My name is RedcXca and I am a top 500 osu! all modes player. This skin combines the skins I have been using for all modes of osu!
+<br>
+<br>**Combined from the following skins:**
+<br>Standard: Bacon boi by cyperdark
+<br>Catch: bees by xperimentx
+<br>Taiko/Mania: Furude Rika by theEZIC
 
-:smirk: :nail_care: *girlboss time*
-## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
-This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
-[** a **]
-[a]
+Discord: **RedcXca#4332**
+<br>📷 See screenshots below ⬇️
+
+# **⭕ Standard**
+![](https://i.imgur.com/SmUWZqg.jpg)
+
+# **🥁 Taiko**
+![](https://i.imgur.com/ZKq0YFu.jpg)
+
+# **🍎 Catch**
+![](https://i.imgur.com/sLDMjMH.jpg)
+
+# **🎹 Mania**
+![](https://i.imgur.com/MCRY1Lp.jpg)
