@@ -3,7 +3,7 @@
 * [**My osu! Profile**](https://osu.ppy.sh/users/14056601)
 * [**Download Skin**](https://drive.google.com/drive/folders/1G7X0lrWD6hkzXTTgRMNmVPCZBUANxHWo)
 
-Hello! My name is RedcXca and I am a top 500 osu! all modes player. This skin combines the skins I have been using for all modes of osu!
+Hello! My name is RedcXca and I am a top 400 osu! all modes player. This skin combines the skins I have been using for all modes of osu!
 <br>
 <br>**Combined from the following skins:**
 <br>Standard: Bacon boi by cyperdark
